@@ -1,4 +1,4 @@
-# 
+# vip Adobe Audition for macOS Extension | proxy-editing + auto-tune offers the most advanced Adobe Audition for macOS extension, with proxy-editing and auto-tune. Ideal for
 
 
 
